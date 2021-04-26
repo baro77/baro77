@@ -2,7 +2,7 @@
 
 IT and networking professional, crypto & blockchain enthusiastic, science and tech hungry guy 🙂
 
-Other places where you can wind me:
+Other places where you can find me:
 
 * [www.byBaro.it](https://www.bybaro.it)
 * [LinkedIn](https://linkedin.com/in/andreabarontini)
