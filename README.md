@@ -1,6 +1,6 @@
 # Andrea Barontini
 
-IT and networking professional, crypto & blockchain enthusiastic, author of _The Salmon Series_ ([https://www.bybaro.it/tss](https://www.bybaro.it/tss)), science and tech hungry guy 🙂
+IT and networking professional, crypto & blockchain enthusiastic, author of _The Salmon Series_ ([www.bybaro.it/tss](https://www.bybaro.it/tss)), science and tech hungry guy 🙂
 
 Other places where you can find me:
 
