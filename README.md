@@ -8,6 +8,6 @@ Other places where you can find me:
 * [LinkedIn](https://linkedin.com/in/andreabarontini)
 * [Mastodon](https://ioc.exchange/@baro77)
 * [Twitter](https://twitter.com/andreabaro77)
-* [Bluesky](bsky.app/profile/bybaro.it)
+* [Bluesky](https://bsky.app/profile/bybaro.it)
 * [Medium](https://baro77.medium.com)
 * ...
